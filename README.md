@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Sima
 
-I'm a **Computer Science & Applied Mathematics graduate** with a love for solving problems, finding patterns, and turning ideas into practical solutions.
+I'm a **Computer Science & Applied Mathematics graduate** maths is my favorite language .
 
 ### 👀 I'm interested in
 
